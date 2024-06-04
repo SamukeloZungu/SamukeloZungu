@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Samukelo Siyanda Zungu
+- 👀 I’m interested in Software development acttually coding is my life.
+- 🌱 I’m currently learning doing my internship at SD Creatives.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me? Do not hestate to email me at samkelosengwayo01@gmail.com or contact me 0664618732
